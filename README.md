@@ -13,3 +13,5 @@ information security, applications, systems and all modern technologies
 شبكة تواصل اجتماعي للمبرمجين والمطورين حول العالم 
 
 كل ما يتعلق بالذكاء الصناعي وأمن المعلومات والتطبيقات والنظم وكل التقنيات الحديثة 
+
+https://www.youtube.com/channel/UC69TSELj8UUHHdDCbyQW8fA
