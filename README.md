@@ -14,4 +14,11 @@ information security, applications, systems and all modern technologies
 
 كل ما يتعلق بالذكاء الصناعي وأمن المعلومات والتطبيقات والنظم وكل التقنيات الحديثة 
 
+
+Telegram
+https://t.me/the_hackers_ag
+
+https://t.me/+ofLqFnEBVg1mNTJi
+
+YouTube
 https://www.youtube.com/channel/UC69TSELj8UUHHdDCbyQW8fA
