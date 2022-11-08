@@ -1,12 +1,3 @@
-# hacker
-
-- 👋 Hi, I’m @aLiGeNiUs
-
-- 👀 I’m interested in programming & development .
-
-- 💞️ I’m looking to collaborate on my hacker project .
-
-
 A social network for programmers and developers around the world
 
 Everything related to artificial intelligence,
