@@ -27,3 +27,7 @@ https://t.me/+ofLqFnEBVg1mNTJi
 YouTube
 
 https://www.youtube.com/channel/UC69TSELj8UUHHdDCbyQW8fA
+
+Reddit
+
+https://www.reddit.com/r/The_Hackers_SM/
