@@ -26,7 +26,7 @@ https://t.me/+ofLqFnEBVg1mNTJi
 
 YouTube
 
-https://www.youtube.com/channel/UC69TSELj8UUHHdDCbyQW8fA
+https://www.youtube.com/@TheHackersSociety
 
 Reddit
 
