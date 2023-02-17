@@ -24,10 +24,17 @@ https://t.me/the_hackers_ag
 
 https://t.me/+ofLqFnEBVg1mNTJi
 
+
 YouTube
 
 https://www.youtube.com/@TheHackersSociety
 
+
 Reddit
 
 https://www.reddit.com/r/The_Hackers_SM/
+
+
+Discord
+
+https://discord.gg/xt8GqNPvnJ
