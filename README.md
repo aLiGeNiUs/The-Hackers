@@ -18,6 +18,23 @@ information security, applications, systems and all modern technologies
 
 
 
+
+GitHub
+
+https://github.com/aLiGeNiUs/The-Hackers
+
+https://github.com/The-Hackers-academy
+
+
+
+Facebook
+
+https://web.facebook.com/aLiGeNiUs.TheHackers
+
+https://web.facebook.com/groups/the.hackers.society
+
+
+
 Telegram
 
 https://t.me/the_hackers_ag
@@ -25,14 +42,17 @@ https://t.me/the_hackers_ag
 https://t.me/+ofLqFnEBVg1mNTJi
 
 
+
 YouTube
 
 https://www.youtube.com/@TheHackersSociety
 
 
+
 Reddit
 
 https://www.reddit.com/r/The_Hackers_SM/
+
 
 
 Discord
