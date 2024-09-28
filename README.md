@@ -1,3 +1,9 @@
+Everything about the Hackers network And details of the first steps to build it in an article on the medium network
+
+https://medium.com/@aligeniusnet/the-hackers-free-project-to-build-social-network-for-hackers-ba7300778e17
+
+
+
 A social network for programmers and developers around the world
 
 Everything related to artificial intelligence,
